@@ -1,1 +1,1 @@
-## Bem vindo ao meu perfil!
+## Olá, bem-vindo ao meu perfil! <img src="https://giphy.com/embed/eNotYhz6gsoNBUzsUa" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen>
