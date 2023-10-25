@@ -1,1 +1,4 @@
-## Olá, bem-vindo ao meu perfil! <img src="https://giphy.com/embed/eNotYhz6gsoNBUzsUa" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen><p><a href="https://giphy.com/stickers/hello-wave-aarongonzalez-eNotYhz6gsoNBUzsUa">via GIPHY</a></p>
+## Olá, bem-vindo ao meu perfil, ! 
+
+
+## PERFIL EM ATUALIZAÇÃO, LOGO LOGO VOLTO COM NOVIDADES!!
